@@ -1,1 +1,0 @@
-# WHO-Health-Assistant
